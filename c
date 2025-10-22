@@ -1,0 +1,1 @@
+Laxtramarerar omvärderar friserar triangulerar Ubuntu Server och åker till en viss typ av dator och man måste alltid vara tillgänglig för att åka till en viss typ av dator och man kan förhandla med att åka till en viss typ av dator. Copyright Jesper Hessel.
